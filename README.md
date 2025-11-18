@@ -1,0 +1,1 @@
+# CodeLobster-IDE-Professional-No-Trial
